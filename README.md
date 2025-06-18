@@ -13,10 +13,10 @@
 
     </div>
     <article class="markdown-body entry-content container-lg f5" itemprop="text"><div align="center" dir="auto">
-<a href="https://tirangainvitecode.in/tiranga" rel="nofollow">
+<a href="https://www.tirangagame.top/#/register?invitationCode=5882818674566" rel="nofollow">
   <img src="https://camo.githubusercontent.com/05e4366ebc630a71ec6146e33066b1d1ba1419f56b0af522d401716c8a9d3260/68747470733a2f2f692e696d61676575706c6f61642e6170702f66323839633361326162363039376531383438372e706e67" alt="Tiranga Game Register" width="100%" height="auto;" data-canonical-src="https://i.imageupload.app/f289c3a2ab6097e18487.png" style="max-width: 100%;">
 </a>
-<a href="https://tirangainvitecode.in/tiranga" rel="nofollow">
+<a href="https://www.tirangagame.top/#/register?invitationCode=5882818674566" rel="nofollow">
   <img src="https://camo.githubusercontent.com/f6f13918b451c789043d6b1d1b1ca6a73ccafd7724afed5983d5655716253ccd/68747470733a2f2f692e696d61676575706c6f61642e6170702f61383139616332623134376366306138306638352e706e67" alt="Tiranga Game Login" width="100%" height="auto;" data-canonical-src="https://i.imageupload.app/a819ac2b147cf0a80f85.png" style="max-width: 100%;">
 </a>
 </div>
@@ -28,7 +28,7 @@
 <div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">🛠️ How to Apply Tiranga Game Invite Code 2757419478643</h2><a id="user-content-️-how-to-apply-tiranga-game-invite-code-2757419478643" class="anchor" aria-label="Permalink: 🛠️ How to Apply Tiranga Game Invite Code 2757419478643" href="#️-how-to-apply-tiranga-game-invite-code-2757419478643"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <p dir="auto">Using the code is super easy. Here’s how:</p>
 <ol dir="auto">
-<li><strong>Visit</strong> <a href="https://tirangainvitecode.in/tiranga" rel="nofollow">tirangainvitecode.in/tiranga</a></li>
+<li><strong>Visit</strong> <a href="https://www.tirangagame.top/#/register?invitationCode=5882818674566" rel="nofollow">tirangainvitecode.in/tiranga</a></li>
 <li><strong>Download</strong> the Tiranga app from the site</li>
 <li><strong>Install</strong> and open the app</li>
 <li><strong>Sign up</strong> with your mobile number</li>
@@ -66,7 +66,7 @@ A: Tiranga operates in most states where skill-based games are permitted. Always
 A: KYC is required only before your first withdrawal.</p>
 <div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">🧾 Wrap Up</h2><a id="user-content--wrap-up" class="anchor" aria-label="Permalink: 🧾 Wrap Up" href="#-wrap-up"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <p dir="auto">If you’re looking to try Tiranga without spending your own money, the <strong>Tiranga Game Invite Code 2757419478643</strong> is your perfect starting point. It’s quick, easy, and gives you ₹58 just for joining.</p>
-<p dir="auto">💸 Grab your code here 👉 <a href="https://tirangainvitecode.in/tiranga" rel="nofollow">tirangainvitecode.in/tiranga</a></p>
+<p dir="auto">💸 Grab your code here 👉 <a href="https://www.tirangagame.top/#/register?invitationCode=5882818674566" rel="nofollow">tirangainvitecode.in/tiranga</a></p>
 <div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">🧲 SEO Title &amp; Meta Description</h2><a id="user-content--seo-title--meta-description" class="anchor" aria-label="Permalink: 🧲 SEO Title &amp; Meta Description" href="#-seo-title--meta-description"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <p dir="auto"><strong>SEO Title:</strong><br>
 Tiranga Game Invite Code 2757419478643 – Claim ₹58 Free &amp; Start Winning</p>
