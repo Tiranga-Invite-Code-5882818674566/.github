@@ -1,17 +1,4 @@
-<div class="container-lg p-responsive js-pinned-items-reorder-container clearfix">
-  <div class="hide-lg hide-xl">
-    
-  </div>
-
-  
-  <div class="Box mb-4">
-  <div class="Box-body p-4">
-    <div class="d-flex flex-justify-between">
-      <div class="text-mono text-small mb-3">
-        <a href="/Best-Tiranga-Game-Invite-Code-2025/.github/tree/main/profile/README.md" class="no-underline Link--primary" style="padding:0px 2px;">README.md</a>
-      </div>
-
-    </div>
+ </div>
     <article class="markdown-body entry-content container-lg f5" itemprop="text"><div align="center" dir="auto">
 <a href="https://www.tirangagame.top/#/register?invitationCode=5882818674566" rel="nofollow">
   <img src="https://camo.githubusercontent.com/05e4366ebc630a71ec6146e33066b1d1ba1419f56b0af522d401716c8a9d3260/68747470733a2f2f692e696d61676575706c6f61642e6170702f66323839633361326162363039376531383438372e706e67" alt="Tiranga Game Register" width="100%" height="auto;" data-canonical-src="https://i.imageupload.app/f289c3a2ab6097e18487.png" style="max-width: 100%;">
